@@ -1,0 +1,1 @@
+About Rice Kheer Recipe | Kheer Recipe: Kheer is a rice pudding made across India, it is simlar to rice payasam made in south Indian homes. One of the most favourite Indian dessert rice kheer can be made quickly and easily with just a few ingredients. Kheer is indeed the perfect dish to celebrate a festival or just prepare it as dessert at home after a hearty dinner.
